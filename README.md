@@ -1,6 +1,6 @@
 # discord-server-booster
 
-If you are finding a free boost tool, you can't find it or not working, nowdays only the pay tool works, if you are interest contact discord: Blust#6666
+If you are finding a free boost tool, you can't find it or not working, nowdays only the pay tool works, if you are interest contact discord: Blust#6367
 
 Tokens must have nitro for this to work.
 
