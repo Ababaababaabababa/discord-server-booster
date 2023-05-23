@@ -8,6 +8,7 @@ Tokens must have nitro for this to work.
 
 ![205187226-4c95d26c-389c-4755-aca4-d69428b28ebf](https://user-images.githubusercontent.com/117867923/222411209-6f1bf22e-3b38-47b0-9c51-eb198a2a62e7.png)
 
+![Screenshot 2023-05-23 170311](https://github.com/Ababaababaabababa/discord-server-booster/assets/117867923/8ed79674-e74d-475c-8f3e-07109435d92f)
 
 
 educational purposes only
