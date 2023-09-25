@@ -1,6 +1,8 @@
 # discord-server-booster
 
-If you are finding a free boost tool, you can't find it or not working, nowdays only the pay tool works, if you are interest contact discord: Blust1
+If you are finding a free boost tool, you can't find it or not working, nowdays only the pay tool works, if you are interest contact discord: Blust9
+
+https://cheapserverboost.sellpass.io/products/646f98d01026a
 
 Tokens must have nitro for this to work.
 
